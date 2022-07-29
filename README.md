@@ -1,4 +1,4 @@
-### Hi there, I'm Lateef 👋
+### Hi there, I'm [Lateef](https://www.linkedin.com/in/abdullateef-odufeso-030960191?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BeEJpGkYZQa6wEReZRwuWKA%3D%3D) 👋
 
 <!--
 **Wireless-XZ/Wireless-XZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
